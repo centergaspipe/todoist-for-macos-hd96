@@ -1,4 +1,4 @@
-
+rare Extension for Todoist for macOS - task automation and custom themes offers the most advanced Todoist for macOS extension, with task automation and custom themes. Ideal for
 
 
 
